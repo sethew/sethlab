@@ -6,3 +6,7 @@
 For questions or requests, please reach out at sethlab.apps@gmail.com.  Unfortunately, support is provided on a very limited basis.
 
 Battlestar Galactica © Universal Network Television LLC.  Board game mechanics and rules © Fantasy Flight Publishing, Inc.  Battlestar Loyalty Deck is not affiliated with Universal Network Television LLC nor Fantasy Flight Publishing, Inc. 
+
+### Privacy Policy
+
+Battlestar Loyalty Deck does not collect your personal information.
